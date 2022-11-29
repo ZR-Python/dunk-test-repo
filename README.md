@@ -1,2 +1,10 @@
 # dunk-test-repo
 We are testing GitHub in Joe Dunko's Class
+EDIT EDIT EDIT
+CHANGE CHANGE CHANGE
+SWITCHEROO
+CUT
+PASTE
+DUPLICATE
+REMOVE
+AROUND THE WORLD
